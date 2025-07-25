@@ -36,3 +36,11 @@ PC - Windows
 
 [itch.io Sayfası
 ](https://abrans-game.itch.io/run-for-baby)
+
+<img width="1920" height="1080" alt="eUx_I_" src="https://github.com/user-attachments/assets/b2d875c3-506a-45b0-857a-d9d82b872083" />
+<img width="1920" height="1080" alt="HiZjir" src="https://github.com/user-attachments/assets/df236eb8-20bc-48c1-b88c-bfb05f979989" />
+<img width="1920" height="1080" alt="N8npi5" src="https://github.com/user-attachments/assets/00837fff-4aaa-4c24-a8c2-2d7891bd482a" />
+<img width="1920" height="1080" alt="sBf3yi" src="https://github.com/user-attachments/assets/9d34254b-8dcf-426b-a360-73d74be75255" />
+<img width="1920" height="1080" alt="OuB4BS" src="https://github.com/user-attachments/assets/42dc6ced-8c2a-45c3-858f-2c35139f3664" />
+
+
